@@ -1,1 +1,0 @@
-# jkmaximum.github.io
